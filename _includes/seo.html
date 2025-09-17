@@ -75,6 +75,8 @@
 
 {% if page.image.thumb %}
   <meta property="og:image" content="{{ page.image.thumb }}">
+  <meta property="og:image:secure_url" content="{{ page.image.thumb }}">
+  <meta property="og:image:type" content="image/webp">
 {% endif %}
 
 {% if site.twitter.username %}
@@ -95,6 +97,11 @@
 
   {% if author_twitter %}
     <meta name="twitter:creator" content="@{{ author_twitter }}">
+  {% endif %}
+
+  {% if page.image.thumb %}
+    <meta property="twitter:image" content="{{ page.image.thumb }}">
+    <meta property="twitter:creator" content="@{{ site.twitter.username | replace: "@", "" }}">
   {% endif %}
 {% endif %}
 
