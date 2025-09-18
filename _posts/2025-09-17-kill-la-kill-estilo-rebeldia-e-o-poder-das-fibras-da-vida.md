@@ -93,7 +93,9 @@ Kill la Kill é um grito de rebeldia, um espetáculo visual e narrativo que desa
 🔥 Você acredita que Kill la Kill merecia uma continuação ou já disse tudo o que precisava?  
 **Comente abaixo e compartilhe sua visão sobre essa obra explosiva.**
 
-## Informações do Anime
+---
+
+# Informações do Anime
 
 - **Gênero:** Ação, Comédia, Shounen, Fantasia, Escolar  
 - **Série:** Kill la Kill (2013–2014)  
@@ -101,3 +103,5 @@ Kill la Kill é um grito de rebeldia, um espetáculo visual e narrativo que desa
 - **Criadores:** Hiroyuki Imaishi (direção) e Kazuki Nakashima (roteiro)  
 - **Estúdio:** Trigger  
 - **Baseado em:** Obra original de *Trigger*
+
+---

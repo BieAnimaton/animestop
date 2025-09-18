@@ -84,7 +84,9 @@ O que faz *Steins;Gate* ser inesquecível?
 🔥 Para você, qual foi o momento mais impactante de Steins;Gate: a morte de Mayuri ou a despedida de Kurisu?  
 **Comente abaixo e compartilhe sua experiência com essa obra inesquecível.**
 
-## Informações do Anime
+---
+
+# Informações do Anime
 
 - **Gênero:** Ficção Científica, Suspense, Drama  
 - **Série:** Steins;Gate (2011) / Steins;Gate 0 (2018)  
@@ -92,3 +94,5 @@ O que faz *Steins;Gate* ser inesquecível?
 - **Criador:** 5pb. & Nitroplus (visual novel original)  
 - **Estúdio:** White Fox  
 - **Baseado em:** Visual Novel *Steins;Gate*
+
+---

@@ -88,3 +88,5 @@ Com seu tom único, consegue agradar tanto quem busca ação e fantasia quanto q
 - **Lançamento:** 2024  
 - **Estúdio:** Trigger  
 - **Baseado em:** Mangá de *Ryoko Kui*  
+
+---

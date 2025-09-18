@@ -45,6 +45,8 @@ A produção do estúdio **Kinema Citrus** é uma obra de arte. A direção de a
 
 ☠️ Qual camada do Abismo mais te impactou ou te deixou com medo? E para os que não assistiram, você teria coragem de descer? Comente abaixo!
 
+---
+
 # Informações do Anime
 
 - **Gênero:** Aventura, Fantasia Sombria, Drama, Sci-Fi, Seinen  
@@ -52,3 +54,5 @@ A produção do estúdio **Kinema Citrus** é uma obra de arte. A direção de a
 - **Lançamento:** 2017 - Presente  
 - **Estúdio:** Kinema Citrus  
 - **Baseado em:** Mangá de *Akihito Tsukushi*  
+
+---

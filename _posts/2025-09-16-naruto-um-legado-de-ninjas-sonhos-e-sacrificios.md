@@ -88,7 +88,9 @@ Naruto nos ensinou que força não vem de jutsus — mas da capacidade de seguir
 🔥 Você acredita que Boruto vai honrar — ou superar — o legado do pai?  
 **Comente abaixo e compartilhe sua conexão com essa história que marcou gerações.**
 
-## Informações do Anime
+---
+
+# Informações do Anime
 
 - **Gênero:** Ação, Aventura, Drama, Shounen, Ninja, Superação  
 - **Séries:** Naruto (2002–2007) / Naruto Shippuden (2007–2017) / Boruto (2017–Presente)  
@@ -96,3 +98,5 @@ Naruto nos ensinou que força não vem de jutsus — mas da capacidade de seguir
 - **Criador:** Masashi Kishimoto  
 - **Estúdios:** Pierrot  
 - **Baseado em:** Mangá de *Masashi Kishimoto*
+
+---

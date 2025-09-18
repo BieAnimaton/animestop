@@ -94,3 +94,5 @@ Conta pra gente nos comentários!
 - **Impacto Geral:** ★★★★☆  
 
 🔎 **Nota Final: 8.5/10** — Um anime inesquecível, cheio de tensão e emoção, mas que pode não agradar quem prefere tramas mais leves.  
+
+---

@@ -94,3 +94,5 @@ Você concorda com esse princípio na vida real? Deixe sua opinião nos comentá
 - **Impacto Geral:** ★★★★★  
 
 🔥 **Nota Final: 10/10** — Um dos melhores shounens já feitos, unindo ação eletrizante, profundidade filosófica e personagens inesquecíveis.
+
+---

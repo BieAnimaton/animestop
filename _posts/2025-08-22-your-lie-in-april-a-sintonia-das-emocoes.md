@@ -82,3 +82,5 @@ Compartilhe nos comentários e inspire outros leitores!
 - **Lançamento:** 2014 - 2015  
 - **Estúdio:** A-1 Pictures  
 - **Baseado em:** Mangá de *Naoshi Arakawa*  
+
+---

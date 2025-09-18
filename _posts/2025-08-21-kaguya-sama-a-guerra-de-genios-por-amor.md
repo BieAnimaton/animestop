@@ -6,6 +6,7 @@ categories:
 tags:
   - Comédia
   - Romance
+  - Escolar
   - Psicológico
   - Slice of Life
 image:
@@ -78,7 +79,7 @@ Compartilhe sua estratégia nos comentários!
 
 # Informações do Anime
 
-- **Gênero:** Comédia, Romance, Psicológico, Slice of Life  
+- **Gênero:** Comédia, Romance, Escolar, Psicológico, Slice of Life  
 - **Episódios:** 37 + Filme (até o momento)  
 - **Lançamento:** 2019 - Presente  
 - **Estúdio:** A-1 Pictures  

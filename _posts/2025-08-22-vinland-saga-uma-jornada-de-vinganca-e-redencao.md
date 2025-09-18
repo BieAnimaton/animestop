@@ -88,3 +88,5 @@ A força em batalha ou a coragem para buscar a paz? Compartilhe sua opinião nos
 - **Lançamento:** 2019 / 2023  
 - **Estúdio:** Wit Studio (1ª) / MAPPA (2ª)  
 - **Baseado em:** Mangá de *Makoto Yukimura*
+
+---

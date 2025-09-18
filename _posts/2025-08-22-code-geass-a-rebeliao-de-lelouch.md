@@ -88,3 +88,5 @@ Você acredita que as ações de Lelouch foram justificadas para alcançar seus 
 - **Lançamento:** 2006 - 2008  
 - **Estúdio:** Sunrise  
 - **Baseado em:** Obra original
+
+---

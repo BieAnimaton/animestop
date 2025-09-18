@@ -54,3 +54,5 @@ Além do modo competitivo, o jogo também conta com um modo história que permit
 - **Plataforma:** iOS, Android  
 - **Desenvolvedora:** Changyou / G Holdings  
 - **Lançamento:** Já disponível em algumas regiões / Em pré-registro  
+
+---

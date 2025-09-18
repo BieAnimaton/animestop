@@ -62,6 +62,9 @@ O anime te faz rir com piadas absurdas e, no instante seguinte, sentir o peso da
 
 É a prova de que as melhores histórias às vezes não são sobre salvar o mundo, mas sobre **encontrar um motivo para viver**, mesmo que seja apenas uma fatia de pão.
 
+🐶 **E você?** Qual o seu Caçador de Demônios favorito?  
+E qual dos 12 encerramentos do anime é o seu preferido? Conte nos comentários!
+
 ---
 
 # Informações do Anime
@@ -73,6 +76,3 @@ O anime te faz rir com piadas absurdas e, no instante seguinte, sentir o peso da
 - **Baseado em:** Mangá de *Tatsuki Fujimoto*  
 
 ---
-
-🐶 **E você?** Qual o seu Caçador de Demônios favorito?  
-E qual dos 12 encerramentos do anime é o seu preferido? Conte nos comentários!

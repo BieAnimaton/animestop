@@ -71,3 +71,5 @@ Produzido pelo estúdio **Gainax**, o anime estabeleceu um novo padrão de quali
 - **Lançamento:** 1995 - 1996  
 - **Estúdio:** Gainax, Tatsunoko Production  
 - **Baseado em:** Obra original de *Hideaki Anno*
+
+---

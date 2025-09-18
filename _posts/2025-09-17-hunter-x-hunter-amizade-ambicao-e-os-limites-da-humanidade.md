@@ -101,7 +101,9 @@ Hunter x Hunter é imprevisível: **não há garantias de vitória, nem heróis 
 🔥 Você acredita que Togashi ainda voltará a concluir a saga?  
 **Deixe seu comentário e compartilhe sua conexão com essa obra-prima.**
 
-## Informações do Anime
+---
+
+# Informações do Anime
 
 - **Gênero:** Ação, Aventura, Estratégia, Drama, Shounen  
 - **Séries:** Hunter x Hunter (1999–2001) / Hunter x Hunter Remake (2011–2014)  
@@ -109,3 +111,5 @@ Hunter x Hunter é imprevisível: **não há garantias de vitória, nem heróis 
 - **Criador:** Yoshihiro Togashi  
 - **Estúdios:** Nippon Animation (1999) / Madhouse (2011)  
 - **Baseado em:** Mangá de *Yoshihiro Togashi*
+
+---

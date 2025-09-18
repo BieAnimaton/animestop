@@ -71,3 +71,5 @@ A trilha sonora, composta por Yasuharu Takanashi, mistura rock, música celta e 
 - **Lançamento:** 2009 - 2019  
 - **Estúdio:** A-1 Pictures, Satelight, Bridge, CloverWorks  
 - **Baseado em:** Mangá de *Hiro Mashima*
+
+---

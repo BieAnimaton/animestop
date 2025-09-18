@@ -75,3 +75,5 @@ E qual sombra você mais deseja adicionar ao seu exército? Deixe seu hype nos c
 - **Lançamento:** Início de 2026  
 - **Desenvolvedora:** Netmarble  
 - **Baseado em:** Manhwa de Chugong (História) e DUBU (Arte)  
+
+---

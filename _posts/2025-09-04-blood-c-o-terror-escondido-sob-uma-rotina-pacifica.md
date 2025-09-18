@@ -76,10 +76,6 @@ O final destrói completamente a ilusão inicial e mostra que os monstros não s
 Mas para quem aprecia o terror psicológico aliado ao gore estilizado, a obra é uma experiência memorável e ousada.  
 Um verdadeiro exemplo do que acontece quando dois gigantes — **CLAMP** e **Production I.G** — decidem criar algo transgressor.
 
----
-
-# Discussão
-
 ☕ O que mais te impactou em *Blood-C*: a violência gráfica ou a reviravolta final?  
 E a música que Saya canta, também ficou na sua cabeça? Comente abaixo!
 
@@ -92,3 +88,5 @@ E a música que Saya canta, também ficou na sua cabeça? Comente abaixo!
 - **Lançamento:** 2011  
 - **Estúdio:** Production I.G  
 - **Baseado em:** Obra original com história e design da CLAMP  
+
+---

@@ -53,10 +53,14 @@ Prepare-se para uma verdadeira montanha-russa emocional. **Tengen Toppa Gurren-L
 
 🧨 Qual frase de efeito ou momento de **Gurren-Lagann** mais te marcou? Compartilhe essa energia espiral nos comentários!
 
-## Informações do Anime
+---
+
+# Informações do Anime
 
 - **Gênero:** Mecha, Ação, Aventura, Sci-Fi, Comédia  
 - **Episódios:** 27 + 2 Filmes  
 - **Lançamento:** 2007  
 - **Estúdio:** Gainax  
 - **Baseado em:** Obra original  
+
+---

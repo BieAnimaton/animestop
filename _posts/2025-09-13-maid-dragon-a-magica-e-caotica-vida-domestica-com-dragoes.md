@@ -78,6 +78,8 @@ Sobre descobrir que lar não é um lugar — mas as pessoas (ou dragões) que te
 ☕ Você acha que Tohru e Kobayashi são um casal, ou uma família diferente de todas?  
 **Comente abaixo e compartilhe sua experiência com esse anime aconchegante e encantador!**
 
+---
+
 # Informações do Anime
 
 - **Gênero:** Comédia, Slice of Life, Fantasia, Cotidiano  
@@ -85,3 +87,5 @@ Sobre descobrir que lar não é um lugar — mas as pessoas (ou dragões) que te
 - **Lançamento:** 2017 - Presente  
 - **Estúdio:** Kyoto Animation  
 - **Baseado em:** Mangá de *Cool-kyou Shinja*
+
+---

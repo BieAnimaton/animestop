@@ -76,10 +76,12 @@ E qual foi o momento mais marcante de "Sasuga, Ainz-sama!" para você?
 
 ---
 
-## Informações do Anime
+# Informações do Anime
 
 - **Gênero:** Isekai, Fantasia Sombria, Ação, Comédia  
 - **Episódios:** 4 Temporadas + Filmes (até o momento)  
 - **Lançamento:** 2015 – Presente  
 - **Estúdio:** Madhouse / Naver  
 - **Baseado em:** Light Novel de *Kugane Maruyama*  
+
+---

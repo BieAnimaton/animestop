@@ -84,6 +84,8 @@ Mesmo com críticas e polêmicas, Sword Art Online permanece relevante porque to
 🎮 **Qual momento de SAO mais te marcou? A morte de um personagem? Um beijo? Uma batalha épica?**  
 Comente abaixo e compartilhe sua jornada em Sword Art Online!
 
+---
+
 # Informações do Anime
 
 - **Gênero:** Ação, Fantasia, Isekai, Romance, Drama  
@@ -91,3 +93,5 @@ Comente abaixo e compartilhe sua jornada em Sword Art Online!
 - **Lançamento:** 2012 - Presente  
 - **Estúdio:** A-1 Pictures  
 - **Baseado em:** Light Novel de *Reki Kawahara*
+
+---

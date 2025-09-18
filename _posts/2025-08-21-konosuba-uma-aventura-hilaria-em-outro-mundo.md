@@ -90,3 +90,5 @@ Se você quer dar boas gargalhadas e ver um grupo de idiotas tentando (e falhand
 - **Impacto Geral:** ★★★★☆  
 
 😂 **Nota Final: 8/10** — Um anime hilário e leve, que satiriza o gênero isekai e garante risadas do começo ao fim.  
+
+---

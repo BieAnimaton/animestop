@@ -95,6 +95,8 @@ Porque esse anime **não te entrega uma resposta — ele te obriga a escolher um
 🧠 Você acredita que Eren foi um herói ou um tirano?  
 **Comente abaixo e entre para o debate — porque esta guerra de ideias está longe de acabar.**
 
+---
+
 # Informações do Anime
 
 - **Gênero:** Ação, Pós-apocalíptico, Mistério, Militar, Guerra, Drama, Psicológico  
@@ -102,3 +104,5 @@ Porque esse anime **não te entrega uma resposta — ele te obriga a escolher um
 - **Lançamento:** 2013 - 2023  
 - **Estúdios:** Wit Studio / MAPPA  
 - **Baseado em:** Mangá de *Hajime Isayama*
+
+---

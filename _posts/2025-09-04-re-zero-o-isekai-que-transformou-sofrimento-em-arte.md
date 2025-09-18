@@ -58,10 +58,14 @@ E justamente por isso, quando as vitórias finalmente chegam, são **catárticas
 💀 **Qual foi o loop ou a morte de Subaru que mais te chocou ou te deixou sem dormir?**  
 E a pergunta de um milhão de dólares: **Rem ou Emilia?** Comente abaixo e entre para a conversa!
 
-## Informações do Anime
+---
+
+# Informações do Anime
 
 - **Gênero:** Isekai, Fantasia Sombria, Psicológico, Drama, Suspense, Terror  
 - **Episódios:** 2 Temporadas + OVAs (até o momento)  
 - **Lançamento:** 2016 - Presente  
 - **Estúdio:** White Fox  
 - **Baseado em:** Light Novel de *Tappei Nagatsuki*  
+
+---

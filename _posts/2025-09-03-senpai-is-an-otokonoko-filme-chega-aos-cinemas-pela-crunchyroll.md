@@ -56,7 +56,9 @@ O filme chega para continuar essa missão — e, quem sabe, emocionar ainda mais
 
 💖 Você está ansioso(a) para ver a continuação da história de Makoto, Saki e Ryuji nas telonas? O que você mais espera deste filme? Compartilhe sua expectativa nos comentários!
 
-## Informações do Filme
+---
+
+# Informações do Filme
 
 - **Título:** Senpai is an Otokonoko: Sunshine After the Rain  
 - **Gênero:** Romance, Drama, Slice of Life, LGBTQ+  
@@ -64,3 +66,5 @@ O filme chega para continuar essa missão — e, quem sabe, emocionar ainda mais
 - **Lançamento nos cinemas:** A ser anunciado  
 - **Distribuição:** Crunchyroll  
 - **Baseado em:** Mangá de *Pom*  
+
+---

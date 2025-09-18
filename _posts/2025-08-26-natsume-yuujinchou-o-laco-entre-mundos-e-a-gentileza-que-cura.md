@@ -69,3 +69,5 @@ A trilha sonora complementa perfeitamente o tom da série, com melodias gentis e
 - **Lançamento:** 2008 - Presente  
 - **Estúdio:** Brain's Base (S1-4), Shuka (S5-em diante)  
 - **Baseado em:** Mangá de *Yuki Midorikawa*
+
+---

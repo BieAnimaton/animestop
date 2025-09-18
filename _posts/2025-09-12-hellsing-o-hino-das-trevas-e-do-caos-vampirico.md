@@ -60,6 +60,9 @@ A animação é refinada, com batalhas cinematográficas que parecem mini-filmes
 Muito além da violência estilizada, *Hellsing* se tornou lendário por seu protagonista.  
 **Alucard** está no mesmo patamar de personagens como **Guts** (*Berserk*) e **Griffith*. Seu carisma, imprevisibilidade e poder absoluto criam uma presença magnética que continua fascinando fãs duas décadas depois.
 
+🔥 **E você?** Qual a cena mais memorável de *Hellsing*?  
+O massacre da Millennium em Londres ou os confrontos apoteóticos de Alucard?
+
 ---
 
 # Informações do Anime
@@ -71,6 +74,3 @@ Muito além da violência estilizada, *Hellsing* se tornou lendário por seu pro
 - **Baseado em:** Mangá de *Kouta Hirano*  
 
 ---
-
-🔥 **E você?** Qual a cena mais memorável de *Hellsing*?  
-O massacre da Millennium em Londres ou os confrontos apoteóticos de Alucard?

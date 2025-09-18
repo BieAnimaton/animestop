@@ -69,3 +69,5 @@ Ainda sem datas confirmadas, a saga do **Castelo Infinito** promete ser o evento
 - **Lançamento:** A ser anunciado  
 - **Estúdio:** Ufotable  
 - **Baseado em:** Mangá de *Koyoharu Gotouge*
+
+---

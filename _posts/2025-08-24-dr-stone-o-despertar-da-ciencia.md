@@ -60,3 +60,5 @@ Compartilhe sua ideia nos comentários!
 - **Lançamento:** 2019 - Presente  
 - **Estúdio:** TMS Entertainment  
 - **Baseado em:** Mangá de *Riichiro Inagaki* (roteiro) e *Boichi* (arte)
+
+---

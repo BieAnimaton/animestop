@@ -80,3 +80,5 @@ Conte pra gente nos comentários!
 - **Lançamento:** 2020 - 2021  
 - **Estúdio:** MAPPA  
 - **Baseado em:** Mangá de *Gege Akutami*
+
+---

@@ -79,3 +79,5 @@ E você conseguiria manter a calma como Miko faz?
 - **Lançamento:** 2021  
 - **Estúdio:** Passione  
 - **Baseado em:** Mangá de *Tomoki Izumi*  
+
+---

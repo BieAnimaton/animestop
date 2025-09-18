@@ -81,6 +81,8 @@ Embora seja sobre venenos e mistérios, o anime é também sobre:
 💬 Já teve uma suspeita que ninguém acreditou — mas você estava certo?  
 **Comente abaixo e compartilhe sua experiência com este anime de mistério e veneno.**
 
+---
+
 ## Informações do Anime
 
 - **Gênero:** Mistério, Histórico, Slice of Life, Drama, Investigação, Romance Sutil  
@@ -88,3 +90,5 @@ Embora seja sobre venenos e mistérios, o anime é também sobre:
 - **Lançamento:** 2023–Presente  
 - **Estúdio:** TOHO Animation / OLM  
 - **Baseado em:** Light Novel de *Natsu Hyuuga*  
+
+---
