@@ -8,6 +8,7 @@ tags:
   - Drama
   - Psicológico
   - Suspense
+  - Magia
 image:
   feature: /assets/images/re-zero-1.webp
   thumb: /assets/images/re-zero-1.webp

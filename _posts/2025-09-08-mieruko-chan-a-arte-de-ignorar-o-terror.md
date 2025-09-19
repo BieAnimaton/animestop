@@ -6,6 +6,8 @@ categories:
 tags:
   - Terror
   - Comédia
+  - Mistério
+  - Suspense
   - Sobrenatural
   - Slice of Life
 image:
@@ -74,7 +76,7 @@ E você conseguiria manter a calma como Miko faz?
 
 ## Informações do Anime
 
-- **Gênero:** Terror, Comédia, Sobrenatural, Slice of Life  
+- **Gênero:** Terror, Comédia, Mistério, Suspense, Sobrenatural, Slice of Life  
 - **Episódios:** 12  
 - **Lançamento:** 2021  
 - **Estúdio:** Passione  
