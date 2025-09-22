@@ -3,10 +3,15 @@ title: "One Piece: Conheça os filmes que marcaram a história da franquia"
 categories:
   - Filme
 tags:
-  - Ação
   - Aventura
+  - Ação
+  - Comédia
   - Shounen
-  - Pirata
+  - Piratas
+  - Fantasia
+  - Música
+  - Recordes
+  - Chápeu de Palha
 image:
   feature: /assets/images/onepiece-filmes.webp
   thumb: /assets/images/onepiece-filmes.webp
