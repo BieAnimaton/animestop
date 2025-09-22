@@ -94,6 +94,4 @@ Mais do que uma história de amor juvenil, é uma reflexão sobre destino, memó
 - **Animação:** ★★★★★  
 - **Impacto Geral:** ★★★★★  
 
-🌟 **Nota Final: 9,5/10** — Uma obra-prima emocional e visual, que consolidou Makoto Shinkai como um dos grandes mestres da animação moderna.
-
 ---

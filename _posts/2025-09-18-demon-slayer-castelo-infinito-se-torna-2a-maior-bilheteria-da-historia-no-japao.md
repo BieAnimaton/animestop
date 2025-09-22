@@ -1,7 +1,7 @@
 ---
 title: "Demon Slayer: Castelo Infinito se torna 2ª maior bilheteria da história no Japão"
 categories:
-  - Anime
+  - Filme
 tags:
   - Ação
   - Shounen
@@ -63,6 +63,10 @@ Se o ritmo continuar, é possível que *Castelo Infinito*:
 
 Fonte: [Nippon.com](https://www.nippon.com/en/news/yjj2025091600748/latest-demon-slayer-becomes-2nd-highest-grossing-film-in-japan.html)
 
+🎬 **Você já assistiu Castelo Infinito?**  
+🔥 Qual foi o momento mais impactante para você?  
+Comente abaixo e compartilhe sua opinião sobre esse novo marco da história do anime japonês.
+
 ---
 
 # Informações do Filme
@@ -76,10 +80,3 @@ Fonte: [Nippon.com](https://www.nippon.com/en/news/yjj2025091600748/latest-demon
 - **Distribuição:** Aniplex / Toho
 
 ---
-
-🎬 **Você já assistiu Castelo Infinito?**  
-🔥 Qual foi o momento mais impactante para você?  
-Comente abaixo e compartilhe sua opinião sobre esse novo marco da história do anime japonês.
-
----
-
