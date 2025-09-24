@@ -11,7 +11,7 @@ tags:
   - Fantasia
   - Música
   - Recordes
-  - Chápeu de Palha
+  - Chapéu de Palha
 image:
   feature: /assets/images/onepiece-filmes.webp
   thumb: /assets/images/onepiece-filmes.webp
