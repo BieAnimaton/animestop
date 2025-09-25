@@ -83,8 +83,6 @@ Se bem executado, pode elevar ainda mais o legado de Sakamoto — levando o lend
 
 ---
 
----
-
 # Informações do Anime
 
 - **Gênero:** Ação, comédia, suspense  

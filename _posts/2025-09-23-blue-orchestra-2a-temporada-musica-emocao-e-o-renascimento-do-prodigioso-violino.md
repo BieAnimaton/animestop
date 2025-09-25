@@ -74,6 +74,13 @@ A trilha sonora, mais uma vez, deve ser um dos pontos altos, conectando o públi
 
 ---
 
+🎵 **Você já ouve “Amadeus” tocando na mente?**  
+✨ **Como acha que Hajime vai lidar com os desafios emocionais e musicais dessa nova fase?**
+
+Compartilhe suas expectativas e emoções sobre a volta dessa história afinada com o coração.
+
+---
+
 # Informações da 2ª Temporada
 
 - **Gênero:** Drama juvenil, música, slice of life  
@@ -84,14 +91,3 @@ A trilha sonora, mais uma vez, deve ser um dos pontos altos, conectando o públi
 - **Streaming:** Crunchyroll (provavelmente, a confirmar)
 
 ---
-
-# Conclusão
-
-*Blue Orchestra* retorna para nos lembrar do poder que a música tem de curar — ou expor — feridas antigas. A nova temporada promete tocar ainda mais fundo no coração dos fãs, com emoção, técnica e sensibilidade.
-
----
-
-🎵 **Você já ouve “Amadeus” tocando na mente?**  
-✨ **Como acha que Hajime vai lidar com os desafios emocionais e musicais dessa nova fase?**
-
-Compartilhe suas expectativas e emoções sobre a volta dessa história afinada com o coração.
