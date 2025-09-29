@@ -90,3 +90,5 @@ Compartilhe suas experiências e pensamentos sobre esse anime que celebra o que 
 - **Trilha Sonora:** Nijine, ZAQ  
 - **Classificação:** Shounen  
 - **Inspiração:** Experiências comuns da adolescência, fantasia e comédia romântica  
+
+---
