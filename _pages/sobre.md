@@ -4,7 +4,7 @@ permalink: /sobre/
 toc: true
 ---
 
-# Sobre o Animes Top
+# Animes Top
 
 **Data de vigência:** 12/09/2025
 
@@ -24,6 +24,9 @@ Promover experiências digitais simples, funcionais e abertas, sem barreiras de 
 
 - **Livre Sou** — [livresou.com.br](https://livresou.com.br)  
   Plataforma voltada para formação de investidores.
+
+- **Turminha Selvagem** — [turminhaselvagem.com.br](https://turminhaselvagem.com.br)  
+  Site educativo sobre a fauna e flora brasileira.
 
 ## Privacidade
 O site **não possui cadastro de usuários** nem exige informações pessoais para navegação.  
