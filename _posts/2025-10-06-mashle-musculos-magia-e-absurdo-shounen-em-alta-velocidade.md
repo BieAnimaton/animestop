@@ -95,6 +95,7 @@ Uma comédia de ação onde o protagonista quebra feitiços com flexões:
 - **Gênero:** Ação, Comédia, Fantasia, Shounen, Paródia  
 - **Série:** *Mashle: Magic and Muscles* (2023–2024)  
 - **Temporadas:** 2 (até o momento)  
+
 - **Episódios:** 24+  
 - **Estúdio:** A-1 Pictures  
 - **Streaming:** [Verificar disponibilidade regional]  

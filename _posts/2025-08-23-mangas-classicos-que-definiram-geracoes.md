@@ -2,7 +2,7 @@
 title: "Mangás Clássicos que Definiram Gerações"
 excerpt: "Antes dos animes se tornarem fenômenos globais, foram os mangás que plantaram as sementes. Nesta lista, relembramos obras que moldaram a indústria e inspiraram gerações."
 categories:
-  - Mangá
+  - Manga
 tags:
   - Lista
   - Clássicos
