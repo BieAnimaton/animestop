@@ -11,7 +11,7 @@ tags:
   - Kaigaku
 image:
   feature: /assets/images/hinokami-chronicles-1.webp
-  thumb: /assets/images/hinokami-chronicles-2.webp
+  thumb: /assets/images/hinokami-chronicles-1.webp
 toc: true
 excerpt: "Demon Slayer: The Hinokami Chronicles 2 traz mais ação sangrenta e intensas batalhas contra os demônios, com a adição de Kaigaku como personagem jogável. Prepare-se para novos desafios, gráficos espetaculares e um enredo expandido."
 ---
