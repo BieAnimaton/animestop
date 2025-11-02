@@ -1,8 +1,7 @@
 ---
 title: "Tokidoki: Estilo Kawaii, Pop e Arte Urbana em Explosão de Cores"
 categories:
-  - Cultura Pop
-  - Design
+  - Anime
 tags:
   - Kawaii
   - Moda
@@ -10,6 +9,8 @@ tags:
   - Ilustração
   - Streetwear
   - Cultura Japonesa
+  - Cultura Pop
+  - Design
 image:
   feature: /assets/images/tokidoki-1.webp
   thumb: /assets/images/tokidoki-1.webp
