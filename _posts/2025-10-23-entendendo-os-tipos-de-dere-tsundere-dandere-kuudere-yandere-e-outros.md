@@ -30,6 +30,19 @@ No universo dos animes, os arquétipos de personagens, conhecidos como *deres*, 
 
 Aqui, vamos explorar os tipos mais populares, como **Tsundere**, **Yandere**, **Kuudere**, **Dandere**, entre outros, explicando as suas características e apresentando personagens que representam cada um desses arquétipos.
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # 1. **Tsundere**
 
 ![Exemplo de Tsundere: Asuka Langley de *Neon Genesis Evangelion*]( /assets/images/tsundere-exemplo.webp )
@@ -53,6 +66,19 @@ As **Yandere** começam como personagens amorosas e até mesmo doces, mas sua ob
 As **Kuudere** são personagens que mantêm uma atitude fria, calma e distante. Elas geralmente não expressam emoções facilmente e podem parecer indiferentes, mas possuem um lado mais afetuoso e apaixonado que raramente mostram.
 
 **Exemplo famoso**: **Rei Ayanami** de *Neon Genesis Evangelion* — Uma das personagens mais icônicas desse tipo, Rei é serena, calma e, muitas vezes, parece impassível, mas seu vínculo com Shinji revela um lado mais profundo.
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # 4. **Dandere**
 
@@ -78,6 +104,19 @@ As **EroDere** combinam o comportamento carinhoso com uma atitude mais sensual e
 
 **Exemplo famoso**: **Blair** de *Soul Eater* — Blair exibe uma atitude descontraída, brincalhona e sensual, sempre provocante e sem vergonha de flertar com **Soul**. Sua natureza ousada, mas afetuosa, a coloca firmemente no arquétipo **EroDere**.
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # 7. **Shundere**
 
 ![Exemplo de Shundere: Sayaka Miki de *Puella Magi Madoka Magica*]( /assets/images/shundere-exemplo.webp )
@@ -101,6 +140,19 @@ As **Deredere** são personagens alegres, otimistas e sempre dispostas a espalha
 As **Bokodere** são personagens femininas que adotam uma postura mais masculina, com atitudes práticas, diretas e menos "femininas". Elas geralmente possuem uma natureza mais forte e independente, sem se preocupar em exibir feminilidade excessiva.
 
 **Exemplo famoso**: **Erza Scarlet** de *Fairy Tail* — Erza é uma personagem que mistura força física e uma personalidade robusta, demonstrando o comportamento típico de uma *bokodere*, sendo tanto respeitada quanto admirada por sua independência.
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # 10. **Kamidere**
 

@@ -22,6 +22,19 @@ excerpt: "O filme de *Chainsaw Man* com o Arco da Reze mantém o primeiro lugar 
 
 O fenômeno de *Chainsaw Man* não para de surpreender os fãs e o público em geral. Após o lançamento da adaptação cinematográfica do Arco da **Reze**, o filme segue em alta, conquistando o topo das bilheteiras em seu quinto fim de semana consecutivo. Aclamado pela crítica e pelos fãs da obra de **Tatsuki Fujimoto**, o filme continua a mostrar a força da franquia e a popularidade crescente de **Denji**, **Makima**, e, claro, da misteriosa **Reze**, a devoradora de corações.
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 ## O Filme: Arco da Reze
 
 O filme adapta uma das partes mais emocionantes e tensas do manga, onde Denji se vê envolvido com Reze, uma garota misteriosa com poderes perigosos. Este arco é marcado por cenas emocionais intensas, personagens complexos e, claro, muita ação — características que são marca registrada de *Chainsaw Man*. 
@@ -48,6 +61,19 @@ O sucesso nas bilheteiras não é apenas reflexo da base de fãs da série, mas 
 # O Futuro de Chainsaw Man nos Cinemas
 
 Com o sucesso do filme, muitos se perguntam sobre os próximos passos para a franquia no cinema. Se o filme continuar a dominar as bilheteiras como está acontecendo, é possível que novos arcos da obra sejam adaptados para a tela grande, trazendo ainda mais conteúdo para os fãs que aguardam ansiosamente pelos próximos capítulos da saga de **Denji**.
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # Conclusão
 

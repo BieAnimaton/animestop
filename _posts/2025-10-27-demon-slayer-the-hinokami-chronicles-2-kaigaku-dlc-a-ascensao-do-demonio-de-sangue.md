@@ -22,6 +22,19 @@ excerpt: "Demon Slayer: The Hinokami Chronicles 2 traz mais ação sangrenta e i
 
 **Demon Slayer: The Hinokami Chronicles 2** é a continuação eletrizante do aclamado jogo baseado no anime *Demon Slayer* (Kimetsu no Yaiba). Desenvolvido pela **CyberConnect2** e publicado pela **SEGA**, o jogo agora se expande com o aguardado **DLC de Kaigaku**, trazendo ainda mais personagens, fases e um enredo mais profundo para os fãs da franquia.
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 Prepare-se para:
 
 - **Novos personagens jogáveis**, com Kaigaku no centro da ação  
@@ -60,6 +73,19 @@ Com o lançamento do **DLC de Kaigaku**, a lista de personagens jogáveis agora 
 - **Tanjiro Kamado**: o incansável caçador de demônios com sua espada de fogo  
 - **Inosuke Hashibira**: o selvagem e incontrolável lutador com sua técnica de batalha única  
 - E muitos outros heróis e vilões do universo de *Demon Slayer*.
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # Modos de Jogo
 

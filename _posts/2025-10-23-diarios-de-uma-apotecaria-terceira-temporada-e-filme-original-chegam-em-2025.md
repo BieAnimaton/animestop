@@ -24,6 +24,19 @@ A série **Diários de uma Apotecária** (*Kusuriya no Hitorigoto*) não para de
 
 Baseado na obra de **Natsu Hyuuga** e ilustrado por **Sumi**, o anime cativou fãs pela sua trama envolvente e pela inteligente protagonista, Maomao, uma jovem apotecária que se vê no centro de intrigas palacianas e mistérios que desafiam sua habilidade de resolução.
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # Sinopse da Terceira Temporada e do Filme
 
 Na **terceira temporada**, Maomao continua a enfrentar os desafios do palácio imperial, lidando com intrigas, envenenamentos e mistérios com sua astúcia peculiar. Novos aliados e inimigos surgem, testando as habilidades de Maomao e seu relacionamento com o enigmático Rui.
@@ -58,6 +71,19 @@ A terceira temporada de *Diários de uma Apotecária* traz:
 - **Visual impressionante e cenas emocionantes**
 
 Já o **filme original** promete expandir o universo da série, com uma história inédita que será crucial para o futuro de Maomao e seus aliados. Mais magia, mais perigos, mais segredos a serem desvendados.
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # Por que Assistir *Diários de uma Apotecária*?
 
