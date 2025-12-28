@@ -8,6 +8,9 @@ tags:
   - Mensagem de Agradecimento
   - Festas
   - Boas Festas
+  - Happy Holidays
+  - Isekai
+  - Magical
 image:
   feature: /assets/images/feliz-natal-2025.webp
   thumb: /assets/images/feliz-natal-2025.webp
@@ -53,3 +56,192 @@ Estamos ansiosos para continuar essa jornada com vocês em 2026 e trazer ainda m
 ---
 
 📌 Que o novo ano seja ainda mais incrível! Nos vemos em breve! 🎉
+
+---
+
+# lustrações e Artes Comemorativas de Animes
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
+## Jujutsu Kaisen
+
+[Link Original](https://x.com/MAPPA_Info/status/2004024332591550623)
+
+![Arte Comemorativa de Jujutsu Kaisen](/assets/images/jujutsu-kaisen-natal.webp)
+
+## Frieren
+
+[Link Original](https://x.com/Anime_Frieren/status/2003752522423718082)
+
+![Arte Comemorativa de Frieren](/assets/images/frieren-natal.webp)
+
+## Even a Replica Can Fall in Love
+
+[Link Original](https://x.com/REPLICO_dengeki/status/2003753480822112540)
+
+![Arte Comemorativa de Even a Replica Can Fall in Love](/assets/images/even-a-replica-natal.webp)
+
+## Doraemon
+
+[Link Original](https://x.com/doraemonChannel/status/2003601528553373709)
+
+![Arte Comemorativa de Doraemon](/assets/images/doraemon-natal.webp)
+
+## Isekai Quartet
+
+[Link Original](https://x.com/isekai_quartet/status/2004024314778255793)
+
+![Arte Comemorativa de Isekai Quartet](/assets/images/isekai-quartet-natal.webp)
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
+## The Promised Neverland
+
+[Link Original](https://x.com/DemizuPosuka/status/2003817999283990707)
+
+![Arte Comemorativa de The Promised Neverland](/assets/images/tpn-natal.webp)
+
+## Gushing over Magical Girls
+
+[Link Original](https://x.com/mahoako_anime/status/2003752634071814335)
+
+![Arte Comemorativa de Gushing over Magical Girls](/assets/images/gushing-natal.webp)
+
+## My Hero Academia
+
+[Link Original](https://x.com/heroaca_anime/status/2003782715280126012)
+
+![Arte Comemorativa de My Hero Academia](/assets/images/mha-natal.webp)
+
+## Re:ZERO -Starting Life in Another World
+
+[Link Original](https://x.com/Rezero_official/status/1999403853855265071)
+
+![Arte Comemorativa de Re:ZERO](/assets/images/re-zero-natal.webp)
+
+## SPY x FAMILY
+
+[Link Original](https://x.com/_tatsuyaendo_/status/2003744025401290880)
+
+![Arte Comemorativa de SPY x FAMILY](/assets/images/spy-family-natal.webp)
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
+## Sound! Euphonium
+
+[Link Original](https://x.com/anime_eupho/status/2004005022275981445)
+
+![Arte Comemorativa de Sound! Euphonium](/assets/images/sound-natal.webp)
+
+## Natsume's Book of Friends
+
+[Link Original](https://x.com/Natsume_Nyanko/status/2003767612421894284)
+
+![Arte Comemorativa de Natsume](/assets/images/natsume-natal.webp)
+
+## Now That We Draw
+
+[Link Original](https://x.com/kabatani42/status/2003798631309353301)
+
+![Arte Comemorativa de Now That We Draw](/assets/images/we-draw-natal.webp)
+
+## NEEDY GIRL OVERDOSE
+
+[Link Original](https://x.com/x_angelkawaii_x/status/2004024310550417449)
+
+![Arte Comemorativa de NEEDY GIRL OVERDOSE](/assets/images/overdose-natal.webp)
+
+## Medaka Kuroiwa is Impervious to My Charms
+
+[Link Original](https://x.com/ranomannma/status/2003814813911421288)
+
+![Arte Comemorativa de Medaka Kuroiwa](/assets/images/medaka-natal.webp)
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
+## Oshi no Ko
+
+[Link Original](https://x.com/anime_oshinoko/status/2003752759611510933)
+
+![Arte Comemorativa de Oshi no Ko](/assets/images/oshi-no-ko-natal.webp)
+
+## To Love Ru
+
+[Link Original](https://x.com/yabuki_info/status/2004093000260223203)
+
+![Arte Comemorativa de To Love Ru](/assets/images/to-love-ru-natal.webp)
+
+## Classroom of the Elite
+
+[Link Original](https://x.com/tomose_shunsaku/status/2003790197671211256)
+
+![Arte Comemorativa de Classroom of the Elite](/assets/images/classroom-of-the-elite-natal.webp)
+
+## One Piece
+
+[Link Original](https://x.com/Eiichiro_Staff/status/2003860027325718810)
+
+![Arte Comemorativa de One Piece](/assets/images/one-piece-natal.webp)
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
+## Naruto
+
+[Link Original](https://x.com/NARUTO_info_en/status/2003963931367489630)
+
+![Arte Comemorativa de One Piece](/assets/images/naruto-natal.webp)
