@@ -26,6 +26,19 @@ O anime *One Piece*, um dos maiores sucessos do mundo, está se aproximando de u
 
 De acordo com o mais recente anúncio da **Toei Animation**, a **Crunchyroll** também confirmou que os fãs poderão acompanhar as novas temporadas com um ritmo mais acelerado e episódios recheados de ação, além de surpresas para o próximo arco. Prepare-se para grandes batalhas, novos personagens e a esperada evolução da história!
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # O Novo Cronograma de 2026
 
 **One Piece** seguirá sua jornada com um cronograma robusto em 2026, com a promessa de novos episódios e arcos que farão os fãs vibrarem de emoção. Confira o que está por vir no próximo ano:
