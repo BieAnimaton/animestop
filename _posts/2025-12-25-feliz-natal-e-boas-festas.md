@@ -86,23 +86,11 @@ Estamos ansiosos para continuar essa jornada com vocês em 2026 e trazer ainda m
 
 ![Arte Comemorativa de Frieren](/assets/images/frieren-natal.webp)
 
-## Even a Replica Can Fall in Love
-
-[Link Original](https://x.com/REPLICO_dengeki/status/2003753480822112540)
-
-![Arte Comemorativa de Even a Replica Can Fall in Love](/assets/images/even-a-replica-natal.webp)
-
 ## Doraemon
 
 [Link Original](https://x.com/doraemonChannel/status/2003601528553373709)
 
 ![Arte Comemorativa de Doraemon](/assets/images/doraemon-natal.webp)
-
-## Isekai Quartet
-
-[Link Original](https://x.com/isekai_quartet/status/2004024314778255793)
-
-![Arte Comemorativa de Isekai Quartet](/assets/images/isekai-quartet-natal.webp)
 
 <script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
      crossorigin="anonymous"></script>
@@ -117,17 +105,17 @@ Estamos ansiosos para continuar essa jornada com vocês em 2026 e trazer ainda m
      (adsbygoogle = window.adsbygoogle || []).push({});
 </script>
 
+## Isekai Quartet
+
+[Link Original](https://x.com/isekai_quartet/status/2004024314778255793)
+
+![Arte Comemorativa de Isekai Quartet](/assets/images/isekai-quartet-natal.webp)
+
 ## The Promised Neverland
 
 [Link Original](https://x.com/DemizuPosuka/status/2003817999283990707)
 
 ![Arte Comemorativa de The Promised Neverland](/assets/images/tpn-natal.webp)
-
-## Gushing over Magical Girls
-
-[Link Original](https://x.com/mahoako_anime/status/2003752634071814335)
-
-![Arte Comemorativa de Gushing over Magical Girls](/assets/images/gushing-natal.webp)
 
 ## My Hero Academia
 
@@ -140,12 +128,6 @@ Estamos ansiosos para continuar essa jornada com vocês em 2026 e trazer ainda m
 [Link Original](https://x.com/Rezero_official/status/1999403853855265071)
 
 ![Arte Comemorativa de Re:ZERO](/assets/images/re-zero-natal.webp)
-
-## SPY x FAMILY
-
-[Link Original](https://x.com/_tatsuyaendo_/status/2003744025401290880)
-
-![Arte Comemorativa de SPY x FAMILY](/assets/images/spy-family-natal.webp)
 
 <script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
      crossorigin="anonymous"></script>
@@ -160,6 +142,12 @@ Estamos ansiosos para continuar essa jornada com vocês em 2026 e trazer ainda m
      (adsbygoogle = window.adsbygoogle || []).push({});
 </script>
 
+## SPY x FAMILY
+
+[Link Original](https://x.com/_tatsuyaendo_/status/2003744025401290880)
+
+![Arte Comemorativa de SPY x FAMILY](/assets/images/spy-family-natal.webp)
+
 ## Sound! Euphonium
 
 [Link Original](https://x.com/anime_eupho/status/2004005022275981445)
@@ -172,23 +160,11 @@ Estamos ansiosos para continuar essa jornada com vocês em 2026 e trazer ainda m
 
 ![Arte Comemorativa de Natsume](/assets/images/natsume-natal.webp)
 
-## Now That We Draw
-
-[Link Original](https://x.com/kabatani42/status/2003798631309353301)
-
-![Arte Comemorativa de Now That We Draw](/assets/images/we-draw-natal.webp)
-
 ## NEEDY GIRL OVERDOSE
 
 [Link Original](https://x.com/x_angelkawaii_x/status/2004024310550417449)
 
 ![Arte Comemorativa de NEEDY GIRL OVERDOSE](/assets/images/overdose-natal.webp)
-
-## Medaka Kuroiwa is Impervious to My Charms
-
-[Link Original](https://x.com/ranomannma/status/2003814813911421288)
-
-![Arte Comemorativa de Medaka Kuroiwa](/assets/images/medaka-natal.webp)
 
 <script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
      crossorigin="anonymous"></script>
@@ -208,12 +184,6 @@ Estamos ansiosos para continuar essa jornada com vocês em 2026 e trazer ainda m
 [Link Original](https://x.com/anime_oshinoko/status/2003752759611510933)
 
 ![Arte Comemorativa de Oshi no Ko](/assets/images/oshi-no-ko-natal.webp)
-
-## To Love Ru
-
-[Link Original](https://x.com/yabuki_info/status/2004093000260223203)
-
-![Arte Comemorativa de To Love Ru](/assets/images/to-love-ru-natal.webp)
 
 ## Classroom of the Elite
 
