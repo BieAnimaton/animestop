@@ -4,7 +4,6 @@ categories:
   - Curiosidades
 tags:
   - Ano Novo
-  - 2026
   - Mensagem de Agradecimento
   - Boas Festas
   - Happy New Year
