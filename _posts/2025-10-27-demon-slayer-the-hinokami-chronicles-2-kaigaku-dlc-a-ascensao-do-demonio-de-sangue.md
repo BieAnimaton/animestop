@@ -122,3 +122,18 @@ Com o lançamento do **DLC de Kaigaku**, a lista de personagens jogáveis agora 
 ---
 
 📌 *Se você é fã de Demon Slayer e está pronto para mais lutas emocionantes, o DLC de Kaigaku traz uma nova camada de emoção e desafio para sua experiência de jogo.*
+
+---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay5 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6933741210"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>

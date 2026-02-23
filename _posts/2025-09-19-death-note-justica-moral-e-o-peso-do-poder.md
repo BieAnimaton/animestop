@@ -31,6 +31,19 @@ Este post explora os principais temas e elementos desse clássico sombrio:
 - **Temas de justiça, ego e corrupção**
 - **O legado duradouro de Death Note**
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay5 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6933741210"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # Light Yagami: o nascimento de Kira
 
 Ao encontrar o Death Note deixado pelo shinigami **Ryuk**, Light, um estudante modelo, decide usá-lo para "limpar o mundo" de criminosos. Seu objetivo? Criar uma nova era, onde ele será o deus da justiça.
@@ -49,6 +62,19 @@ Sua luta para desmascarar Kira se torna um duelo psicológico eletrizante.
 - Os confrontos entre os dois são **jogos mentais complexos** e altamente estratégicos.
 
 Quando estão na mesma sala, o espectador nunca sabe quem está ganhando — até ser tarde demais.
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay6 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="4023495081"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # Um suspense moral e psicológico
 
@@ -85,6 +111,19 @@ Desde sua estreia em 2006, *Death Note* influenciou uma geração inteira:
 ⚖️ **O que você faria com o Death Note em mãos?**  
 Comente aqui embaixo e participe dessa discussão que ultrapassa a ficção!
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 ---
 
 # Informações do Anime
@@ -99,3 +138,16 @@ Comente aqui embaixo e participe dessa discussão que ultrapassa a ficção!
 - **Baseado em:** Mangá publicado entre 2003 e 2006
 
 ---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>

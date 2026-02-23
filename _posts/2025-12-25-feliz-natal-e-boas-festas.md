@@ -215,3 +215,16 @@ Estamos ansiosos para continuar essa jornada com vocês em 2026 e trazer ainda m
 [Link Original](https://x.com/NARUTO_info_en/status/2003963931367489630)
 
 ![Arte Comemorativa de One Piece](/assets/images/naruto-natal.webp)
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay5 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6933741210"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>

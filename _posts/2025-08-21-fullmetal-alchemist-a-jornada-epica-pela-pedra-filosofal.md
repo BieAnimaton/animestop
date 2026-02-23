@@ -25,12 +25,36 @@ Em um ato de desespero, Ed sacrifica um braço para selar a alma de seu irmão e
 
 ---
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3783999541"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # ⚖️ Temas Profundos e Conspirações
 
 A história se aprofunda em temas como **sacrifício, família, guerra e a natureza humana**, tudo sob a lei fundamental da alquimia: a **Troca Equivalente**.  
 Ao longo do caminho, os irmãos Elric se envolvem em uma conspiração governamental e enfrentam os temíveis **Homúnculos**, seres que personificam os sete pecados capitais.
 
 ---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay5 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6933741210"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # 🛡️ Alianças e Batalhas Épicas
 
@@ -54,6 +78,19 @@ Além disso, a obra se diferencia por não se limitar a batalhas épicas: ela ta
 
 ---
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay6 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="4023495081"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # 🧩 Uma Reflexão Além da Ação
 
 Com personagens cativantes, um enredo complexo e batalhas de alquimia de tirar o fôlego, **Fullmetal Alchemist** é mais do que um shounen de ação:  
@@ -76,6 +113,19 @@ Você concorda com esse princípio na vida real? Deixe sua opinião nos comentá
 
 ---
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # Quem vai gostar de Fullmetal Alchemist?
 
 - Fãs de **aventura épica e bem construída**.  
@@ -96,3 +146,16 @@ Você concorda com esse princípio na vida real? Deixe sua opinião nos comentá
 🔥 **Nota Final: 10/10** — Um dos melhores shounens já feitos, unindo ação eletrizante, profundidade filosófica e personagens inesquecíveis.
 
 ---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>

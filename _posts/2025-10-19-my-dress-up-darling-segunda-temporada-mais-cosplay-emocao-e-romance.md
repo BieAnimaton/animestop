@@ -24,11 +24,37 @@ A aguardada **segunda temporada de *My Dress-Up Darling*** (em japonês, *Sono B
 
 Se a primeira temporada encantou ao apresentar os protagonistas e sua paixão compartilhada por confeccionar e vestir fantasias, a nova fase mergulha mais fundo nas emoções, desafios e conquistas pessoais de cada um.
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # Sinopse da Segunda Temporada
 
 Na nova temporada, acompanhamos o desenvolvimento do vínculo entre Marin e Gojo, que agora estão mais próximos do que nunca. Novos personagens, convenções de cosplay e desafios emocionais surgem, colocando à prova seus sentimentos e suas habilidades.
 
 Com mais projetos de trajes ambiciosos e situações de tirar o fôlego (e corar o rosto), *My Dress-Up Darling* mostra que crescer, amar e se expressar não é nada fácil — mas pode ser maravilhoso com a pessoa certa ao seu lado.
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # Personagens em destaque
 
@@ -63,6 +89,19 @@ Prepare-se para mais momentos emocionantes, fofos e até embaraçosos. A segunda
 
 Além disso, a atenção aos detalhes nos trajes, expressões e direção de arte continua sendo um dos pontos fortes do anime.
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay5 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6933741210"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # Informações da 2ª Temporada
 
 - **Gênero:** Romance, Slice of Life, Comédia, Escolar  
@@ -74,3 +113,16 @@ Além disso, a atenção aos detalhes nos trajes, expressões e direção de art
 - **Classificação indicativa:** 14+ (temas sugestivos, romance e linguagem leve)
 
 ---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay6 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="4023495081"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>

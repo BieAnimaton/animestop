@@ -74,11 +74,11 @@ Já o **filme original** promete expandir o universo da série, com uma históri
 
 <script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
      crossorigin="anonymous"></script>
-<!-- BlocoDisplay8 -->
+<!-- BlocoDisplay5 -->
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6482895633"
+     data-ad-slot="6933741210"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 <script>
@@ -103,3 +103,15 @@ Além disso, a qualidade da animação e o desenvolvimento da trama garantem uma
 
 ---
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>

@@ -182,3 +182,18 @@ Embora não seja focado exclusivamente no Natal, *Winter Sonata* possui uma ambi
 Esses animes e episódios especiais representam diferentes formas de viver o Natal — seja pela alegria, pela nostalgia, pelo romance ou pela reflexão. Independentemente do estilo, todos oferecem algo especial para tornar suas festas de fim de ano ainda mais aconchegantes.
 
 Prepare o chocolate quente, escolha seu favorito e aproveite o melhor do Natal no mundo dos animes 🎄✨
+
+---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay5 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6933741210"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>

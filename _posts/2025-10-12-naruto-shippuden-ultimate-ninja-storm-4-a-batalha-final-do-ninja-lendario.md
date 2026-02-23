@@ -29,6 +29,19 @@ Prepare-se para:
 - Momentos emocionantes, cenas de cortar o fôlego e final épico  
 - Jogabilidade fluida e acessível — mas cheia de profundidade
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay5 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6933741210"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # Sinopse e enredo
 
 O jogo cobre os **arcos finais do Naruto Shippuden**, incluindo:
@@ -45,6 +58,19 @@ Entre batalhas cinematográficas, flashbacks e decisões rápidas no meio da aç
 - Animações híbridas entre cenas do anime e gráficos do jogo  
 - Participação direta em combates icônicos  
 - **Final desbloqueável** que emociona qualquer fã de longa data
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay6 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="4023495081"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # Jogabilidade e mecânicas
 
@@ -73,6 +99,19 @@ Com mais de **100 personagens jogáveis**, o jogo inclui:
 - **Aventura**: explore Konoha e missões extras após a guerra  
 - **Versus local e online**: desafie amigos ou jogadores do mundo todo  
 - **Torneios, Sobrevivência e Missões Especiais**: modos adicionais para quem busca desafio e variedade  
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # Por que jogar Naruto Storm 4?
 
@@ -103,3 +142,17 @@ Com mais de **100 personagens jogáveis**, o jogo inclui:
 
 📌 *Se você cresceu com Naruto, este jogo é o encerramento perfeito da jornada. E se está conhecendo agora, não há maneira melhor de entrar no mundo ninja.*  
 
+---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>

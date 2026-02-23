@@ -24,6 +24,19 @@ Além disso, foi divulgada uma nova arte promocional mostrando Frieren, Fern e S
 
 Esse anúncio foi feito durante eventos como o **Anime Expo 2025**, onde foi exibido um trailer que confirma que a continuação estará disponível no **Crunchyroll** globalmente. ([gamevicio.com](https://www.gamevicio.com/noticias/2025/07/frieren-segunda-temporada-anunciada/?utm_source=chatgpt.com))  
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay5 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6933741210"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # Detalhes da produção e dos novos passos narrativos
 
 A primeira temporada teve **28 episódios** e foi transmitida entre setembro de 2023 e março de 2024. ([hypebeast.com](https://hypebeast.com/br/2025/3/frieren-beyond-journeys-end-season-2-anime-release-info?utm_source=chatgpt.com))  
@@ -39,6 +52,19 @@ A equipe criativa deve manter boa parte dos nomes da temporada anterior:
 Narrativamente, a 2ª temporada deve adaptar o arco **Continued Northern Travels**, começando mais ou menos do capítulo 61 do mangá. ([gamesradar.com](https://www.gamesradar.com/entertainment/anime-shows/frieren-season-2-release-date-story-trailer-beyond-journeys-end/?utm_source=chatgpt.com))  
 
 Também há expectativa de que parte significativa até o arco do **Monumento da Deusa** seja abordada, até cerca do capítulo 119.  
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay6 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="4023495081"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # Filmes compilatórios e curtas como “aquecimento”
 
@@ -66,6 +92,19 @@ No Brasil e no exterior, o anime foi aclamado: entrou nas listas de melhores de 
 Nas redes sociais, fãs comentam o quão marcante é o ritmo contemplativo da obra: pouca ação explosiva, mas muita carga emocional e simbólica.  
 
 Também há relatos curiosos de pequenas discrepâncias na dublagem entre Crunchyroll e Netflix em certos episódios — como uma frase invertida em português entre as versões de cada plataforma.  
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # Expectativas e interrogantes para a 2ª temporada
 
@@ -100,3 +139,18 @@ Conta pra mim nos comentários!
 - [Portal Tela – Curtas retornando no YouTube](https://www.portaltela.com/entretenimento/musica/2025/03/27/curta-serie-de-frieren-retorna-ao-youtube-antes-da-estreia-da-segunda-temporada?utm_source=chatgpt.com)  
 - [Wikipedia PT – Dados sobre a série](https://pt.wikipedia.org/wiki/S%C5%8Ds%C5%8D_no_Frieren?utm_source=chatgpt.com)  
 - [GamesRadar – Adaptação e arcos](https://www.gamesradar.com/entertainment/anime-shows/frieren-season-2-release-date-story-trailer-beyond-journeys-end/?utm_source=chatgpt.com)  
+
+---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>

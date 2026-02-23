@@ -28,6 +28,19 @@ Prepare-se para:
 - Um protagonista rebelde com coração de herói  
 - Laços de amizade forjados em meio ao perigo  
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay5 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6933741210"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # Sinopse e ambientação
 
 Yusuke Urameshi, um delinquente escolar, morre ao salvar uma criança em um acidente. Seu ato altruísta surpreende o Mundo Espiritual, e ele recebe uma segunda chance: tornar-se um **Detetive Espiritual**, responsável por investigar ameaças do mundo dos demônios e espíritos.
@@ -35,6 +48,20 @@ Yusuke Urameshi, um delinquente escolar, morre ao salvar uma criança em um acid
 - O anime começa com casos sobrenaturais isolados  
 - Evolui para grandes arcos de batalha e torneios  
 - Explora mundos paralelos e hierarquias espirituais
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay6 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="4023495081"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 
 # Personagens principais
 
@@ -69,6 +96,20 @@ Além das lutas, Yu Yu Hakusho aborda temas duradouros:
 - **Natureza do bem e do mal**: vilões têm motivações complexas e ideologias próprias.  
 - **Crescimento pessoal**: cada arco leva os personagens a novos limites físicos e emocionais.
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
+
 # Por que assistir Yu Yu Hakusho?
 
 Um clássico absoluto para quem busca um anime que combina carisma, ação e significado:
@@ -95,3 +136,16 @@ Um clássico absoluto para quem busca um anime que combina carisma, ação e sig
 - **Classificação:** Shounen clássico com camadas filosóficas e emocionais
 
 ---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>

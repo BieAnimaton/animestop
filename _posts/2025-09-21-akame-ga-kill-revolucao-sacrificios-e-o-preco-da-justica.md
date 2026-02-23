@@ -31,6 +31,19 @@ Este post explora os elementos que tornam *Akame ga Kill!* uma obra impactante e
 - **Tatsumi: do sonho de salvar a nação à cruel realidade**
 - **Temas de justiça, moralidade e redenção**
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay5 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6933741210"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # Akame: A Lâmina de Sangue
 
 Akame é uma das assassinas mais letais do **Night Raid**, com uma habilidade única de matar rapidamente e sem hesitação. Mas por trás de sua frieza, ela carrega um peso emocional significativo.
@@ -47,6 +60,19 @@ Tatsumi, o protagonista, começa sua jornada com o desejo de proteger seu vilare
 - Seu envolvimento com **Night Raid** o coloca em situações que desafiam sua moralidade, e ele precisa aprender a equilibrar suas emoções com suas responsabilidades como guerreiro.  
 - Tatsumi se torna a personificação de **sacrifício e sobrevivência**, questionando até onde ele está disposto a ir para alcançar seus objetivos.
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay6 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="4023495081"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # A luta de Night Raid
 
 O **Night Raid** é uma facção revolucionária formada por assassinos com habilidades extraordinárias, todos comprometidos com a queda do Império. Cada membro tem uma história única, e suas motivações variam entre vingança, justiça e redenção.
@@ -54,6 +80,17 @@ O **Night Raid** é uma facção revolucionária formada por assassinos com habi
 - **Leone**: uma mulher feroz que busca se redimir por seu passado, ela é uma figura carismática e protetora.  
 - **Mine**: uma atiradora excepcional, mas com um temperamento forte. Sua lealdade à causa é testada ao longo da série.  
 - **Lubbock e Esdeath**: A rivalidade entre Lubbock, que luta pela liberdade, e Esdeath, uma das principais antagonistas, exemplifica o conflito entre diferentes visões de poder e justiça.
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3783999541"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # Um Mundo de Conflitos e Corrupção
 
@@ -71,6 +108,19 @@ Embora a ação seja um dos maiores atrativos de *Akame ga Kill!*, a série expl
 - **A natureza da justiça**: O que é mais importante: a justiça pela qual lutamos ou as pessoas que sacrificamos para alcançá-la?  
 - **O custo da revolução**: Cada vitória do Night Raid é acompanhada por perdas dolorosas, questionando se o fim justifica os meios.  
 - **A moralidade em tempos de guerra**: Muitos personagens enfrentam dilemas éticos, principalmente ao se depararem com a realidade da morte e do sofrimento.
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # O Impacto de Akame ga Kill!
 
@@ -99,3 +149,16 @@ Deixe seu comentário e compartilhe suas opiniões sobre esta jornada sombria e 
 - **Baseado em:** Mangá publicado de 2010 a 2016
 
 ---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
