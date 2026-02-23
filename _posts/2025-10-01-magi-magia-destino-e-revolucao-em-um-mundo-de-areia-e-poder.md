@@ -28,6 +28,19 @@ Prepare-se para:
 - Tramas políticas e batalhas ideológicas entre reinos  
 - Personagens com histórias profundas e arcos de crescimento marcantes
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay5 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6933741210"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # Sinopse e universo
 
 O mundo de *Magi* é regido por **fluxos de Rukh**, representações visuais do destino e da alma. Algumas pessoas são escolhidas como **Magi**, guias do destino, e têm o poder de encontrar e apoiar reis em potencial.
@@ -35,6 +48,19 @@ O mundo de *Magi* é regido por **fluxos de Rukh**, representações visuais do 
 - **Aladdin**, um misterioso menino com um Djinn em sua flauta, parte em uma jornada pelo mundo  
 - Ao lado de **Alibaba**, um jovem ambicioso, e **Morgiana**, uma guerreira escravizada, eles enfrentam desafios sobrenaturais e humanos  
 - Suas escolhas afetam **impérios inteiros**, levantando debates sobre liberdade, justiça e liderança
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay6 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="4023495081"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # Personagens principais
 
@@ -69,6 +95,19 @@ O mundo de *Magi* é regido por **fluxos de Rukh**, representações visuais do 
 - **Responsabilidade do poder**: o que define um bom rei?  
 - **Amizade e identidade**: a construção do “eu” a partir de vínculos e provações.
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # Por que assistir Magi?
 
 *Magi* se destaca como uma fantasia shounen **com alma**, onde cada arco mistura ação eletrizante com profundidade emocional e política.
@@ -96,3 +135,16 @@ O mundo de *Magi* é regido por **fluxos de Rukh**, representações visuais do 
 - **Classificação:** Shounen com temas políticos e sociais maduros
 
 ---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>

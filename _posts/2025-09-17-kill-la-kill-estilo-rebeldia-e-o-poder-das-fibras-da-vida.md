@@ -33,6 +33,19 @@ Neste post, revisitamos os elementos que tornam *Kill la Kill* uma obra memoráv
 - **A rivalidade com Satsuki Kiryuuin**  
 - **A luta contra a organização REVOCS**  
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay5 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6933741210"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # A Jornada de Ryuko Matoi
 
 A história começa quando **Ryuko Matoi** chega à Academia Honnouji, armada com metade da **Scissor Blade**.  
@@ -60,6 +73,19 @@ Se Ryuko é a rebeldia, Satsuki representa o controle e a ordem.
 A rivalidade entre as duas é um dos pontos altos da série, marcada por confrontos explosivos e discursos cheios de intensidade.  
 Mas, conforme a história avança, as duas percebem que compartilham um inimigo em comum — e que o verdadeiro campo de batalha é maior do que a Academia Honnouji.
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay6 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="4023495081"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # REVOCS e o Confronto Final
 
 A empresa **REVOCS**, liderada por **Ragyo Kiryuuin**, é a verdadeira antagonista.  
@@ -81,6 +107,19 @@ O que torna *Kill la Kill* inesquecível?
 Kill la Kill é um grito de rebeldia, um espetáculo visual e narrativo que desafia o espectador a rir, refletir e vibrar.
 
 ---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # Por que Kill la Kill continua marcante?
 
@@ -105,3 +144,16 @@ Kill la Kill é um grito de rebeldia, um espetáculo visual e narrativo que desa
 - **Baseado em:** Obra original de *Trigger*
 
 ---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>

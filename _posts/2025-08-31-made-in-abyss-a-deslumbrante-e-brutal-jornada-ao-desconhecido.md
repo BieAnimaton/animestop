@@ -21,6 +21,19 @@ toc: true
 
 Olhe para a imagem acima. O que você vê? Um estilo de arte adorável, personagens com traços rechonchudos e um cenário que parece saído de um conto de fadas do Studio Ghibli. Agora, prepare-se, pois **Made in Abyss** usará essa fachada para te levar a uma das jornadas mais cruéis, viscerais e psicologicamente perturbadoras da animação japonesa. Não se engane: por trás da beleza, há um horror indescritível.
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay6 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="4023495081"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # O Abismo e Sua Maldição
 
 A história se passa em uma cidade construída ao redor de um gigantesco buraco de profundidade desconhecida, o "Abismo". Ele é repleto de criaturas perigosas e relíquias de valor inestimável. A protagonista é **Riko**, uma órfã que sonha em se tornar uma "Apito Branco" — a elite dos exploradores — para encontrar sua mãe, desaparecida nas profundezas. Sua vida muda quando ela encontra **Reg**, um garoto robô sem memórias. Juntos, eles decidem descer ao Abismo, uma viagem só de ida.
@@ -30,6 +43,19 @@ O que torna o Abismo tão aterrorizante não são apenas os monstros. É a sua *
 # A Dualidade que Define a Obra
 
 O verdadeiro brilhantismo de **Made in Abyss** está no contraste. O mundo é deslumbrante, a amizade entre Riko e Reg é pura e a sede por aventura é contagiante. No entanto, a obra não hesita em mostrar as consequências brutais dessa jornada. O autor, Akihito Tsukushi, explora a fragilidade do corpo humano de forma gráfica e implacável. O sofrimento é real, as feridas não se curam magicamente e o trauma psicológico deixa marcas profundas.
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # Personagens Inesquecíveis e uma Produção Impecável
 
@@ -56,3 +82,16 @@ A produção do estúdio **Kinema Citrus** é uma obra de arte. A direção de a
 - **Baseado em:** Mangá de *Akihito Tsukushi*  
 
 ---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>

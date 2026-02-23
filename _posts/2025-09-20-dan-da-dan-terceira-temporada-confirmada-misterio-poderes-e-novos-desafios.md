@@ -21,6 +21,19 @@ excerpt: "Após o episódio final da segunda temporada, Dan‑Da‑Dan confirmou
 O anime **Dan‑Da‑Dan** teve sua **terceira temporada oficialmente anunciada** logo após a exibição do episódio 24 da segunda temporada.  
 Ainda não há data de estreia, mas o público já está empolgado para ver o que vem por aí.
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay5 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6933741210"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 ---
 
 # Sobre Dan‑Da‑Dan
@@ -44,6 +57,19 @@ Ainda não há data de estreia, mas o público já está empolgado para ver o qu
 ![Okarun e Momo enfrentando o oculto](/assets/images/dandadan-2.webp)
 
 ---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay6 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="4023495081"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # O que Esperar da 3ª Temporada
 
@@ -72,6 +98,19 @@ Ainda não há data de estreia, mas o público já está empolgado para ver o qu
 
 ---
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # Conclusão
 
 A terceira temporada de *Dan‑Da‑Dan* promete expandir o universo bizarro e fascinante que conquistou os fãs desde o início. Se você curte histórias que mesclam ação, sobrenatural e comédia com um toque absurdo — prepare-se, porque o melhor ainda está por vir.
@@ -90,3 +129,18 @@ Comente abaixo!
 - **Estúdio:** Science SARU  
 - **Streaming:** Crunchyroll (Brasil)  
 - **Data de estreia da 3ª temporada:** Ainda não divulgada  
+
+---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>

@@ -32,13 +32,11 @@ Aqui, vamos explorar os tipos mais populares, como **Tsundere**, **Yandere**, **
 
 <script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
      crossorigin="anonymous"></script>
-<!-- BlocoDisplay7 -->
 <ins class="adsbygoogle"
      style="display:block"
+     data-ad-format="autorelaxed"
      data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="3486671980"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
+     data-ad-slot="3783999541"></ins>
 <script>
      (adsbygoogle = window.adsbygoogle || []).push({});
 </script>
@@ -69,11 +67,11 @@ As **Kuudere** são personagens que mantêm uma atitude fria, calma e distante. 
 
 <script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
      crossorigin="anonymous"></script>
-<!-- BlocoDisplay7 -->
+<!-- BlocoDisplay5 -->
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="3486671980"
+     data-ad-slot="6933741210"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 <script>
@@ -106,11 +104,11 @@ As **EroDere** combinam o comportamento carinhoso com uma atitude mais sensual e
 
 <script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
      crossorigin="anonymous"></script>
-<!-- BlocoDisplay8 -->
+<!-- BlocoDisplay6 -->
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6482895633"
+     data-ad-slot="4023495081"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 <script>
@@ -143,11 +141,11 @@ As **Bokodere** são personagens femininas que adotam uma postura mais masculina
 
 <script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
      crossorigin="anonymous"></script>
-<!-- BlocoDisplay8 -->
+<!-- BlocoDisplay7 -->
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6482895633"
+     data-ad-slot="3486671980"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 <script>
@@ -167,3 +165,18 @@ As **Kamidere** são personagens com um ego gigante. Elas se consideram superior
 Cada tipo de *dere* traz uma dinâmica única para os animes, contribuindo para histórias emocionantes e personagens inesquecíveis. Seja uma personagem doce e tímida como uma **Dandere**, ou uma apaixonada e possessiva como uma **Yandere**, esses arquétipos adicionam camadas de complexidade e diversão às tramas.
 
 Qual tipo de *dere* é o seu favorito? Ou quem é o seu personagem preferido dentro desses arquétipos?
+
+---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>

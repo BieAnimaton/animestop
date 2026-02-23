@@ -23,6 +23,19 @@ A história segue **Yuji Itadori**, um estudante com habilidades físicas sobre-
 
 ---
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay5 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6933741210"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # Enredo e Desenvolvimento
 
 Imediatamente condenado à morte pelo mundo dos feiticeiros, Itadori recebe uma chance: adiar sua execução com a condição de encontrar e consumir todos os vinte dedos de Sukuna, exorcizando o Rei das Maldições de uma vez por todas.  
@@ -37,6 +50,19 @@ A **Energia Amaldiçoada**, nascida de emoções humanas negativas, alimenta as 
 O auge do combate de Jujutsu é a **Expansão de Domínio**, uma técnica suprema que cria uma realidade separada onde os ataques do usuário são indefensáveis, resultando em batalhas estratégicas e visualmente deslumbrantes.
 
 ---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay6 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="4023495081"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # Vilões e Conflitos
 
@@ -63,6 +89,19 @@ Diferente de muitos shounen, a obra não hesita em mostrar as consequências bru
 
 ---
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # Conclusão
 
 Combinando personagens carismáticos, um sistema de poder fascinante e animações de combate que são verdadeiras obras de arte, **Jujutsu Kaisen** é um fenômeno global e um prato cheio para fãs de ação, fantasia sombria e horror sobrenatural.  
@@ -82,3 +121,16 @@ Conte pra gente nos comentários!
 - **Baseado em:** Mangá de *Gege Akutami*
 
 ---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>

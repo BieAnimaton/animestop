@@ -24,6 +24,17 @@ Em um mundo saturado de heróis shonen que sonham em salvar o mundo ou proteger 
 
 A obra-prima de *Tatsuki Fujimoto*, adaptada magistralmente pelo estúdio **MAPPA**, é uma carta de amor caótica à violência, ao humor sombrio e à beleza encontrada nos desejos mais banais.
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3783999541"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 ---
 
 # A História de Denji
@@ -34,6 +45,19 @@ Traído e morto, Denji faz um pacto com Pochita, que se torna seu coração e lh
 O resultado é brutal, sangrento e a sua nova chance de viver.
 
 ---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # Personagens e Dinâmica
 
@@ -52,6 +76,19 @@ A adaptação pelo estúdio **MAPPA** é um verdadeiro espetáculo cinematográf
 - Cada encerramento é único, sendo uma obra de arte por si só, reforçando o cuidado e paixão do projeto.
 
 ---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # Cotidiano e Emoção
 
@@ -76,3 +113,16 @@ E qual dos 12 encerramentos do anime é o seu preferido? Conte nos comentários!
 - **Baseado em:** Mangá de *Tatsuki Fujimoto*  
 
 ---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>

@@ -24,6 +24,19 @@ No conselho estudantil da prestigiada **Academia Shuchiin**, o presidente **Miyu
 
 Inteligentes, carismáticos e respeitados, eles parecem destinados a ficarem juntos — mas existe um problema: ambos são orgulhosos demais para confessar seus verdadeiros sentimentos.
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay5 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6933741210"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 ---
 
 # 🧠 A Guerra do Amor
@@ -43,6 +56,19 @@ A excêntrica e imprevisível secretária **Chika Fujiwara** rouba a cena com se
 Já o sombrio tesoureiro **Yu Ishigami** traz um contraste melancólico e surpreendentemente profundo, abordando temas como depressão, aceitação e amizade verdadeira.
 
 ---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay6 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="4023495081"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # 🎬 Produção e Estilo
 
@@ -67,6 +93,19 @@ Cada pequena vitória, derrota ou gesto de carinho muda a dinâmica entre os doi
 
 ---
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # 🌟 Sucesso e Legado
 
 O sucesso de **Kaguya-sama** foi tanto que a obra já rendeu várias temporadas de anime, especiais e até um filme.  
@@ -86,3 +125,16 @@ Compartilhe sua estratégia nos comentários!
 - **Baseado em:** Mangá de *Aka Akasaka*  
 
 ---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>

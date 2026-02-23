@@ -24,6 +24,19 @@ A história se passa no Reino de Fiore, onde a magia é parte do cotidiano e mag
 
 ---
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay5 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6933741210"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # A Força da Amizade
 
 O que diferencia Fairy Tail é a ênfase implacável na **amizade**. Os laços entre os membros da guilda são a principal fonte de poder. Muitas vezes, quando tudo parece perdido, é a força de proteger um companheiro que desperta magias incríveis e vira o jogo. A palavra "nakama" (companheiro) é um mantra e a série celebra que encontrar uma família é mais importante que qualquer poder ou tesouro.
@@ -35,6 +48,19 @@ O que diferencia Fairy Tail é a ênfase implacável na **amizade**. Os laços e
 A guilda é um mosaico de personalidades vibrantes. Além de Natsu e Lucy, temos **Gray Fullbuster**, o mago do gelo com o péssimo hábito de tirar a roupa; e **Erza Scarlet**, a poderosa maga que reequipa armaduras, irmã mais velha assustadora, mas carinhosa. A dinâmica entre eles mistura rivalidade cômica e lealdade inabalável.
 
 ---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay6 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="4023495081"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # Sistema de Magia e Aventuras
 
@@ -56,6 +82,19 @@ A trilha sonora, composta por Yasuharu Takanashi, mistura rock, música celta e 
 
 ---
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # Conclusão
 
 **Fairy Tail** é uma celebração da família que escolhemos. Um anime que faz rir, chorar e, acima de tudo, acreditar no poder de estar ao lado de quem se ama. Se procura aventura divertida e emocionante com mensagem positiva, entre sem medo na guilda mais animada de Fiore!
@@ -73,3 +112,16 @@ A trilha sonora, composta por Yasuharu Takanashi, mistura rock, música celta e 
 - **Baseado em:** Mangá de *Hiro Mashima*
 
 ---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>

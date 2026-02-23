@@ -29,6 +29,17 @@ Neste post, exploramos os principais aspectos dessa incrível saga:
 - **O impacto cultural e legado de JoJo**
 - **Principais personagens e vilões**
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3783999541"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 # O Conceito das Joestars
 
 A trama gira em torno da família **Joestar**, cujos membros, ao longo das gerações, enfrentam ameaças sobrenaturais. A série se caracteriza pela mudança de protagonistas a cada nova parte, mas sempre com o sobrenome "Joestar" ou variações desse nome. Cada geração tem seu herói, cujas aventuras desafiam inimigos poderosos e complexos.
@@ -47,6 +58,19 @@ A trama gira em torno da família **Joestar**, cujos membros, ao longo das gera�
 - **Protagonista:** Jotaro Kujo  
 - **Enredo:** Jotaro, neto de Joseph, descobre que possui um **Stand** (uma manifestação de energia psíquica) e embarca em uma jornada para derrotar Dio Brando, agora ressuscitado e ainda mais poderoso.
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay5 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6933741210"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 **Parte 4: Diamond Is Unbreakable**  
 - **Protagonista:** Josuke Higashikata  
 - **Enredo:** A história se passa na cidade de **Morioh**, onde Josuke e seus amigos enfrentam novos inimigos com Stands, enquanto investigam um mistério envolvendo um artefato mágico.
@@ -63,6 +87,19 @@ A trama gira em torno da família **Joestar**, cujos membros, ao longo das gera�
 - **Protagonista:** Johnny Joestar  
 - **Enredo:** Ambientada no **Velho Oeste Americano**, Johnny compete em uma corrida épica enquanto busca os poderes de um artefato misterioso, enfrentando inimigos com habilidades extraordinárias.
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+
 **Parte 8: JoJolion**  
 - **Protagonista:** Josuke Higashikata (novo)  
 - **Enredo:** Situada na cidade de Morioh, Josuke busca entender seu passado e a conexão com os eventos anteriores, enquanto novos mistérios e poderes extraordinários surgem.
@@ -75,6 +112,19 @@ O conceito de **Stand** foi introduzido na Parte 3 e se tornou um dos elementos 
 - **The World (Dio Brando)**: Um Stand que pode parar o tempo, semelhante ao de Jotaro, mas com uma força devastadora.  
 - **Crazy Diamond (Josuke Higashikata)**: Pode restaurar objetos e curar feridas, além de possuir grande poder de combate.  
 - **Gold Experience (Giorno Giovanna)**: Capaz de dar vida a objetos e criar organismos vivos.
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay6 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="4023495081"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # O Impacto Cultural de JoJo's Bizarre Adventure
 
@@ -91,6 +141,19 @@ A série também é conhecida por sua abordagem criativa das batalhas, onde a in
 - **Jotaro Kujo**: O protagonista da Parte 3, conhecido pela sua atitude durona e coragem.  
 - **Giorno Giovanna**: O protagonista de **Vento Aureo**, filho de Dio, que busca criar um mundo melhor.  
 - **Enrico Pucci**: O principal antagonista da Parte 6, com um plano complexo e visionário para criar um novo mundo.
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay7 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="3486671980"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
 
 # Por que JoJo's Bizarre Adventure é tão Especial?
 
@@ -114,3 +177,16 @@ A série também é conhecida por sua abordagem criativa das batalhas, onde a in
 - **Baseado em:** Mangá publicado desde 1987 (atualmente em andamento)
 
 ---
+
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
+     crossorigin="anonymous"></script>
+<!-- BlocoDisplay8 -->
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-4481078020462017"
+     data-ad-slot="6482895633"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+<script>
+     (adsbygoogle = window.adsbygoogle || []).push({});
+</script>
