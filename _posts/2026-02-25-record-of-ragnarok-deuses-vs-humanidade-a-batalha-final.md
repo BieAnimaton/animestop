@@ -29,19 +29,6 @@ Prepare-se para:
 - Mitologias colidindo em batalhas brutais  
 - Humanos enfrentando o impossível  
 
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay5 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6933741210"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
 # A premissa: o julgamento final
 
 A cada mil anos, os deuses se reúnem para decidir o destino da humanidade. Cansados das guerras, corrupção e destruição, eles votam pela extinção da raça humana.
@@ -65,19 +52,6 @@ Entre os confrontos mais impactantes:
 - Deuses de diferentes panteões enfrentando figuras históricas icônicas.
 
 O diferencial? Cada humano luta carregando o peso de toda a humanidade.
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay6 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="4023495081"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
 
 # Personagens que roubam a cena
 
@@ -106,19 +80,6 @@ Além das pancadarias épicas, o anime trabalha:
 
 Mesmo em meio à brutalidade, há honra, emoção e reflexões sobre o valor da humanidade.
 
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay7 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="3486671980"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
 # Vale a pena assistir?
 
 Se você gosta de:
@@ -145,16 +106,3 @@ Então *Record of Ragnarok* é uma experiência obrigatória.
 - **Baseado em:** Mangá de Shinya Umemura, Takumi Fukui e Ajichika  
 
 ---
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay8 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6482895633"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>

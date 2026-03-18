@@ -28,19 +28,6 @@ Prepare-se para:
 - Revelações impactantes  
 - Animação de altíssimo nível  
 
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay5 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6933741210"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
 # Situação da estreia
 
 Apesar da enorme expectativa, o longa **não está no calendário oficial de 2026**. Informações recentes indicam que o filme deve estrear apenas em **2027**, já que o estúdio responsável prioriza manter o padrão técnico extremamente elevado da franquia.
@@ -52,19 +39,6 @@ Isso significa:
 - Estratégia focada em lançamento cinematográfico global  
 
 A decisão reforça o compromisso com qualidade, algo que já se tornou marca registrada da série.
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay6 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="4023495081"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
 
 # O que esperar da Parte 2
 
@@ -97,19 +71,6 @@ O histórico da franquia mostra que cada projeto recebe atenção quase artesana
 
 ---
 
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay7 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="3486671980"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
 # Informações do Filme
 
 - **Título:** *Demon Slayer: Kimetsu no Yaiba – Castelo Infinito 2*  
@@ -120,16 +81,3 @@ O histórico da franquia mostra que cada projeto recebe atenção quase artesana
 - **Expectativa:** Continuação direta da batalha final contra Muzan  
 
 ---
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay8 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6482895633"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>

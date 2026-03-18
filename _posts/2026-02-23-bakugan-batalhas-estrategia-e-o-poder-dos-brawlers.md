@@ -22,19 +22,6 @@ excerpt: "Bakugan mistura estratégia, criaturas poderosas e amizade em batalhas
 
 **Bakugan**, lançado em 2007, rapidamente se tornou um fenômeno entre o público jovem ao unir anime, estratégia e um jogo físico colecionável. Com batalhas intensas e criaturas vindas de outra dimensão, a série combina ação acelerada com laços de amizade e crescimento pessoal.
 
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay7 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="3486671980"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
 Prepare-se para:
 
 - Confrontos estratégicos cheios de reviravoltas  
@@ -48,17 +35,6 @@ A história acompanha Dan Kuso e seus amigos, que descobrem misteriosas cartas c
 - O que começa como um simples jogo se transforma em um conflito interdimensional  
 - Batalhas estratégicas definem o destino de dois mundos  
 - Rivalidades e alianças moldam o caminho dos protagonistas  
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-format="autorelaxed"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="3783999541"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
 
 # Personagens principais
 
@@ -81,19 +57,6 @@ A história acompanha Dan Kuso e seus amigos, que descobrem misteriosas cartas c
 - Inteligente e criador de estratégias detalhadas.  
 - Usa tecnologia e raciocínio lógico a seu favor.  
 - Mostra que conhecimento também é poder.
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay8 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6482895633"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
 
 # Temas abordados
 
@@ -130,29 +93,3 @@ Mesmo com foco no público jovem, Bakugan entrega momentos empolgantes e memorá
 - **Classificação:** Anime de batalha com foco em estratégia e amizade  
 
 ---
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay6 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="4023495081"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay5 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6933741210"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
