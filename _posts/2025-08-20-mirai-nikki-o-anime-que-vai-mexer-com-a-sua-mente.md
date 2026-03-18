@@ -20,35 +20,9 @@ toc: true
 
 **Mirai Nikki**, também conhecido como *Future Diary*, acompanha a história de **Yukiteru Amano**, um estudante solitário que passa a registrar sua vida em um diário de celular. Sua rotina muda drasticamente quando ele descobre que o Deus do Tempo e Espaço, **Deus Ex Machina**, transforma seu diário em um instrumento capaz de prever o futuro. Yukiteru é então forçado a participar de um jogo mortal contra outros onze portadores de diários semelhantes. O vencedor se tornará o novo deus supremo.
 
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay5 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6933741210"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
 A trama é intensa e cheia de reviravoltas, misturando suspense, terror psicológico e romance. A personagem **Yuno Gasai**, parceira de Yukiteru e dona do “Diário do Amor”, tornou-se uma das figuras mais icônicas do gênero *yandere* nos animes, sendo amada e temida por sua devoção obsessiva.
 
 Cada portador de diário tem habilidades únicas, refletindo sua personalidade e estilo de vida, o que torna as batalhas imprevisíveis e estratégicas. Mais do que simples combates, o anime explora o limite da sanidade humana e como a pressão de enfrentar a morte pode transformar as pessoas.
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay6 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="4023495081"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
 
 Combinando ação e tensão psicológica, **Mirai Nikki** também apresenta uma crítica ao poder absoluto e à manipulação. Yukiteru, constantemente dividido entre medo e confiança, precisa aprender a amadurecer rapidamente para sobreviver, enquanto Yuno esconde segredos que podem mudar tudo.
 
@@ -57,19 +31,6 @@ Outro destaque do anime é a atmosfera sombria e imprevisível, reforçada pela 
 Ao mesmo tempo, **Mirai Nikki** consegue explorar temas humanos universais, como solidão, medo da rejeição e a necessidade de ser amado. Essa profundidade dá mais peso às atitudes dos personagens, fazendo com que suas escolhas, mesmo extremas, tenham um impacto emocional no público.
 
 ![Gasai Yuno - Mirai Nikki](/assets/images/mirai-nikki-2.webp)
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay7 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="3486671980"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
 
 Além da tensão constante, **Mirai Nikki** também levanta reflexões sobre confiança, escolhas e até onde uma pessoa pode chegar para sobreviver. O relacionamento entre Yukiteru e Yuno é ao mesmo tempo fascinante e perturbador, prendendo o espectador em uma mistura de empatia e medo. Cada episódio traz novos desafios e revela segredos que mudam completamente a direção da história.
 
@@ -97,19 +58,6 @@ Conta pra gente nos comentários!
 
 ---
 
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay8 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6482895633"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
 # Pontos Fortes do Anime
 
 - Mistura de **terror psicológico e romance** de forma intensa.  
@@ -127,17 +75,6 @@ Conta pra gente nos comentários!
 - O OVA “Redial” serve como **epílogo oficial** para a história.  
 
 ---
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-format="autorelaxed"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="3783999541"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
 
 # Quem vai gostar de Mirai Nikki?
 
@@ -159,16 +96,3 @@ Conta pra gente nos comentários!
 🔎 **Nota Final: 8.5/10** — Um anime inesquecível, cheio de tensão e emoção, mas que pode não agradar quem prefere tramas mais leves.  
 
 ---
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay5 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6933741210"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
