@@ -30,19 +30,6 @@ Prepare-se para:
 - Conflitos morais intensos  
 - Sobrevivência acima de idealismo  
 
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay5 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6933741210"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
 # Sinopse e ambientação
 
 Neste universo, indivíduos considerados problemáticos, criminosos ou indesejados pela sociedade recebem uma “segunda chance”: tornam-se heróis oficiais do reino.
@@ -64,19 +51,6 @@ A fantasia aqui é sombria, marcada por campos de batalha devastados e decisões
 
 Ao longo da jornada, ele confronta não apenas monstros, mas a própria estrutura que transforma pessoas em armas descartáveis.
 
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay6 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="4023495081"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
 # O Mundo e suas Regras
 
 ![Heróis enfrentando criaturas colossais.](/assets/images/sentenced-to-be-a-hero-2.webp)
@@ -95,19 +69,6 @@ Essa dinâmica cria tensão constante e levanta uma pergunta incômoda: quem sã
 - **Sistema opressor**: estruturas que exploram indivíduos talentosos.  
 - **Sobrevivência e pragmatismo**: idealismo nem sempre é suficiente.  
 - **Redenção e identidade**: é possível redefinir quem você é?
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay7 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="3486671980"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
 
 # Por que acompanhar?
 
@@ -131,16 +92,3 @@ Para quem gosta de fantasia com tons mais maduros e reflexivos:
 - **Classificação:** Fantasia madura com elementos psicológicos  
 
 ---
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay8 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6482895633"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>

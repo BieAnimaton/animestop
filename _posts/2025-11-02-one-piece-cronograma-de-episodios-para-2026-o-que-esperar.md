@@ -26,19 +26,6 @@ O anime *One Piece*, um dos maiores sucessos do mundo, está se aproximando de u
 
 De acordo com o mais recente anúncio da **Toei Animation**, a **Crunchyroll** também confirmou que os fãs poderão acompanhar as novas temporadas com um ritmo mais acelerado e episódios recheados de ação, além de surpresas para o próximo arco. Prepare-se para grandes batalhas, novos personagens e a esperada evolução da história!
 
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay7 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="3486671980"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
 # O Novo Cronograma de 2026
 
 **One Piece** seguirá sua jornada com um cronograma robusto em 2026, com a promessa de novos episódios e arcos que farão os fãs vibrarem de emoção. Confira o que está por vir no próximo ano:
@@ -82,19 +69,6 @@ O que podemos esperar de *One Piece* em 2026? Aqui estão alguns dos maiores pon
 
 Em 2026, **Luffy** continuará sua jornada para se tornar o **Rei dos Piratas**, e seu crescimento será fundamental para o sucesso de sua tripulação. A busca por **Poneglyphs**, **Rumo à Grande Guerra** e os confrontos com os **Emperadores do Mar** continuam a moldar o futuro do protagonista e seu papel no mundo de *One Piece*.
 
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay8 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6482895633"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
 # Por Que Continuar Assistindo *One Piece* em 2026?
 
 🔥 **Mais Episódios e Menos Enchimento**: A série de 2026 promete uma história mais enxuta e épica, com menos episódios de "filler" e mais ação.
@@ -119,16 +93,3 @@ Em 2026, **Luffy** continuará sua jornada para se tornar o **Rei dos Piratas**,
 📌 Se você é fã de **One Piece**, 2026 promete ser um ano de grandes revelações e aventuras épicas. Não perca!
 
 ---
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay5 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6933741210"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>

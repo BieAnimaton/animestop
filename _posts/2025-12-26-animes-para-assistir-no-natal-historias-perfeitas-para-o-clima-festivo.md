@@ -23,19 +23,6 @@ O Natal é uma época marcada por união, reflexão e momentos aconchegantes —
 
 A seguir, você confere uma seleção de **animes e episódios natalinos** que combinam emoção, leveza, romance e aquele calor humano que faz o Natal ser especial.
 
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay7 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="3486671980"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
 # Animes Para Assistir no Natal
 
 ## 1. K-On!
@@ -56,19 +43,6 @@ Considerado um dos melhores episódios natalinos dos animes, o episódio 19 de *
 
 Este OVA curto é totalmente dedicado ao Natal. A história gira em torno de um garoto que odeia a data e acaba conhecendo uma garota excêntrica que afirma ser a verdadeira Santa Claus. Simples, direto e extremamente fofo, é ideal para quem quer algo rápido e totalmente natalino.
 
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay8 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6482895633"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
 ## 4. Kanon
 ![Kanon](/assets/images/kanon.webp)
 - Gênero: Drama, Romance, Slice of Life  
@@ -86,17 +60,6 @@ Mesmo sendo um anime de super-heróis, *My Hero Academia* também reserva espaç
 - Gênero: Ação, Comédia, Drama  
 
 O primeiro episódio da série já começa no Natal, misturando ação intensa com uma inesperada dinâmica familiar. O contraste entre violência e cuidado cria uma introdução forte e emocional, perfeita para quem busca algo diferente, mas ainda conectado ao clima natalino.
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-format="autorelaxed"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="3783999541"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
 
 ## 7. Lucky Star – Episódio 11
 ![Lucky Star](/assets/images/lucky-star.webp)
@@ -116,19 +79,6 @@ A história nasce a partir de um desejo feito no Natal, dando início a uma conv
 
 Uma animação encantadora que mostra os bastidores do trabalho do Papai Noel. Com foco em fantasia e magia natalina, é uma excelente escolha para quem quer algo diretamente ligado ao espírito do Natal, com visual bonito e mensagem positiva.
 
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay7 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="3486671980"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
 ## 10. Strawberry Marshmallow – Episódio 12
 ![Strawberry Marshmallow](/assets/images/strawberry-marshmallow.webp)
 - Gênero: Slice of Life, Comédia  
@@ -140,19 +90,6 @@ Este episódio especial traz o Natal sob a ótica infantil, com troca de present
 - Gênero: Comédia  
 
 Com seu humor característico, *Hetalia* apresenta um Natal cheio de sátiras envolvendo países e tradições culturais. É uma abordagem irreverente da data, ideal para quem prefere rir e não levar tudo muito a sério.
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay8 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6482895633"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
 
 ## 12. Love Hina Christmas Special: Silent Eve
 ![Love Hina Silent Eve](/assets/images/love-hina-silent-eve.webp)
@@ -166,17 +103,6 @@ Este especial natalino reúne tudo o que fez *Love Hina* ser tão popular: confu
 
 Embora não seja focado exclusivamente no Natal, *Winter Sonata* possui uma ambientação invernal e uma narrativa emocional intensa que combinam perfeitamente com o clima de fim de ano, reflexão e romance.
 
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-format="autorelaxed"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="3783999541"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
 # Conclusão
 
 Esses animes e episódios especiais representam diferentes formas de viver o Natal — seja pela alegria, pela nostalgia, pelo romance ou pela reflexão. Independentemente do estilo, todos oferecem algo especial para tornar suas festas de fim de ano ainda mais aconchegantes.
@@ -184,16 +110,3 @@ Esses animes e episódios especiais representam diferentes formas de viver o Nat
 Prepare o chocolate quente, escolha seu favorito e aproveite o melhor do Natal no mundo dos animes 🎄✨
 
 ---
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay5 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6933741210"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>

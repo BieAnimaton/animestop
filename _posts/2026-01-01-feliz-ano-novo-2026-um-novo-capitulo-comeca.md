@@ -26,19 +26,6 @@ Um novo ano começa, trazendo consigo novas oportunidades, desafios emocionantes
 
 2025 foi um ano especial graças a cada um de vocês que nos acompanharam, comentaram, compartilharam e fizeram parte dessa comunidade apaixonada por animes e cultura pop.
 
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay7 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="3486671980"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
 Que **2026** venha com muita saúde, sucesso, paz e momentos inesquecíveis ao lado de quem você ama. Que cada dia seja como o início de um novo arco épico digno de anime! 🌟
 
 Estamos animados para continuar essa jornada com vocês e trazer ainda mais conteúdos, novidades e surpresas ao longo do ano.
@@ -60,16 +47,3 @@ Estamos animados para continuar essa jornada com vocês e trazer ainda mais cont
 📌 Que 2026 seja um ano lendário! Nos vemos em breve! 🚀✨
 
 ---
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay8 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6482895633"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>

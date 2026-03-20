@@ -24,19 +24,6 @@ excerpt: "Agradecemos imensamente por fazer parte da nossa jornada em 2025. Que 
 
 Nós da **AnimesTop** queremos agradecer a todos vocês por fazerem parte dessa jornada incrível ao longo de 2025. Foi um ano cheio de aventuras, aprendizados e momentos compartilhados, e não poderíamos ter chegado até aqui sem o apoio de cada um de vocês.
 
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay7 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="3486671980"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
 Desejamos a todos um **Feliz Natal** e um **próspero Ano Novo**, repleto de alegria, saúde e sucesso. Que as festas sejam especiais, rodeadas de amor e bons momentos com familiares e amigos.
 
 Estamos ansiosos para continuar essa jornada com vocês em 2026 e trazer ainda mais conteúdos incríveis para nossos fãs!
@@ -61,19 +48,6 @@ Estamos ansiosos para continuar essa jornada com vocês em 2026 e trazer ainda m
 
 # lustrações e Artes Comemorativas de Animes
 
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay8 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6482895633"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
 ## Jujutsu Kaisen
 
 [Link Original](https://x.com/MAPPA_Info/status/2004024332591550623)
@@ -91,19 +65,6 @@ Estamos ansiosos para continuar essa jornada com vocês em 2026 e trazer ainda m
 [Link Original](https://x.com/doraemonChannel/status/2003601528553373709)
 
 ![Arte Comemorativa de Doraemon](/assets/images/doraemon-natal.webp)
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay7 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="3486671980"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
 
 ## Isekai Quartet
 
@@ -129,19 +90,6 @@ Estamos ansiosos para continuar essa jornada com vocês em 2026 e trazer ainda m
 
 ![Arte Comemorativa de Re:ZERO](/assets/images/re-zero-natal.webp)
 
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay8 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6482895633"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
 ## SPY x FAMILY
 
 [Link Original](https://x.com/_tatsuyaendo_/status/2003744025401290880)
@@ -166,19 +114,6 @@ Estamos ansiosos para continuar essa jornada com vocês em 2026 e trazer ainda m
 
 ![Arte Comemorativa de NEEDY GIRL OVERDOSE](/assets/images/overdose-natal.webp)
 
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay7 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="3486671980"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
 ## Oshi no Ko
 
 [Link Original](https://x.com/anime_oshinoko/status/2003752759611510933)
@@ -197,34 +132,8 @@ Estamos ansiosos para continuar essa jornada com vocês em 2026 e trazer ainda m
 
 ![Arte Comemorativa de One Piece](/assets/images/one-piece-natal.webp)
 
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay8 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6482895633"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
 ## Naruto
 
 [Link Original](https://x.com/NARUTO_info_en/status/2003963931367489630)
 
 ![Arte Comemorativa de One Piece](/assets/images/naruto-natal.webp)
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay5 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6933741210"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>

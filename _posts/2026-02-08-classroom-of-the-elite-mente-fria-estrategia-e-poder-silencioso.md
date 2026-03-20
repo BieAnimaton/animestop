@@ -28,19 +28,6 @@ Prepare-se para:
 - Conflitos sociais calculados  
 - Um protagonista tão frio quanto imprevisível  
 
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay7 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="3486671980"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
-
 # Sinopse e ambientação
 
 A história se passa na Escola Metropolitana Avançada de Tóquio, uma instituição de elite que promete garantir o futuro de seus alunos — desde que eles provem seu valor.
@@ -50,17 +37,6 @@ Os estudantes são divididos em classes hierarquizadas da A à D, recebendo pont
 - Sistema meritocrático extremo  
 - Provas que testam inteligência e caráter  
 - Competição constante entre turmas  
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-format="autorelaxed"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="3783999541"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
 
 # Personagens principais
 
@@ -82,19 +58,6 @@ Os estudantes são divididos em classes hierarquizadas da A à D, recebendo pont
 ## ➤ **Ken Sudou**
 - Impulsivo e emocional.  
 - Mostra como crescimento pessoal é parte essencial da competição.
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay8 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="6482895633"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
 
 # Sistema de Pontos e Estratégia
 
@@ -139,16 +102,3 @@ Enquanto muitos animes focam em poder físico, *Classroom of the Elite* aposta n
 - **Classificação:** Drama psicológico com foco em estratégia e manipulação  
 
 ---
-
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-4481078020462017"
-     crossorigin="anonymous"></script>
-<!-- BlocoDisplay6 -->
-<ins class="adsbygoogle"
-     style="display:block"
-     data-ad-client="ca-pub-4481078020462017"
-     data-ad-slot="4023495081"
-     data-ad-format="auto"
-     data-full-width-responsive="true"></ins>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({});
-</script>
